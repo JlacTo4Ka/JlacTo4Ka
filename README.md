@@ -8,7 +8,7 @@
 В моем Github профиле вы НЕ сможете найти рабочие проекты, к сожалению, показывать их нельзя(
 
 * ✉️  Почта для связи со мной: [pavlovsckij1990@list.ru](mailto:pavlovsckij1990@list.ru)
-* 🩵  Мой ~~onlyfans~~ телеграмм: [@pavlovskiiAlexey](mailto:@pavlovskiiAlexey)
+* 🩵  Мой телеграмм: [@pavlovskiiAlexey](mailto:@pavlovskiiAlexey)
 
 ### Skills
 
